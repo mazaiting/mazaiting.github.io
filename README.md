@@ -1,0 +1,1 @@
+# mazaiting.github.io
